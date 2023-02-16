@@ -14,8 +14,8 @@
 
 ## Feito por:
 
-### Joana Santos
+### Verônica Paranhos
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/veronicahp/
 
 ```
